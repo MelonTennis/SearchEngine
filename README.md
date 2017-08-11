@@ -5,4 +5,4 @@ CMU students should follow university's rule.
 
 Only for reference.
 
-And I random choose one version to upload. :)
+And I randomly choose one version to upload. :)
